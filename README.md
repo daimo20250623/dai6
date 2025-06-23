@@ -19,7 +19,7 @@
 
 点击访问：<a href="https://hl420.pages.dev/">热门事件</a>
 
-点击访问：<a href="https://pi79-1.pages.dev/">91吃瓜</a>
+点击访问：<a href="https://pi22.pages.dev/">51每日吃瓜</a>
 
 点击访问：<a href="https://cg30-5.pages.dev/">今日吃瓜不打烊</a>
 
